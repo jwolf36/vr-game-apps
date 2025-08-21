@@ -9,4 +9,4 @@ dojogt / gavin
 
 for helping blitzvr team 
 thank you..
-singing up go to 
+singing up go to issues 
