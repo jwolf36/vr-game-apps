@@ -1,5 +1,5 @@
 # blitzvr company 
-hi i am trying to make vr game named appes  if you have any thing i shold ad then tell me  
+hello I'm blitzvr I'm a company to make games and we work hard on all games we make 😃 😊
 
 credit to.
 Hugo 
