@@ -5,7 +5,7 @@ credit to.
 Hugo 
 brownievr
 Maci
-dojogt / gavin
+dojogt / gavin and me
 
 for helping blitzvr team 
 thank you..
